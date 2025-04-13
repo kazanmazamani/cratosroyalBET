@@ -1,4 +1,4 @@
-<h1>👑 Cratosroyalbet ile Kraliyet Düzeyinde Bahis Keyfi! 🎲</h1>
+<h1>👑 Cratosroyalbet ile Kraliyet Düzeyinde Bahis Keyfi!✔ 🎲</h1>
 <p>Cratosroyalbet, kullanıcılarına elit seviyede bahis ve casino deneyimi sunan, güvenilir ve yüksek kazançlı bir platformdur. Şimdi üye ol, özel bonuslardan faydalan! 💼</p>
 <a href="https://cutt.ly/CratosLink" title="Cratosroyalbet’e Katıl">
     <img src="https://i.ibb.co/5K7Ks6w/zzzz3.gif" alt="Cratosroyalbet Sitesi" style="max-width:100%; height:auto; border-radius:8px;">
